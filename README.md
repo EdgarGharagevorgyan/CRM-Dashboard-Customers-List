@@ -1,0 +1,1 @@
+https://www.figma.com/design/95PjJC4eaeGUkA5E9BDXBm/CRM-Dashboard-Customers-List-(Community)-(Copy)?node-id=0-1&p=f&t=Vh0csf3NP3ZKvI2t-0
